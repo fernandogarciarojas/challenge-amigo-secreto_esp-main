@@ -1,1 +1,1 @@
-Nombre de la persona que entergó el challenge: Fernando Gacía Rojas
+Nombre de la persona que entergó el challenge: Fernando García Rojas
